@@ -1,0 +1,1 @@
+# CoFe2O4_SiO2-structure
